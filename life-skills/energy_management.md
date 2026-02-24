@@ -68,6 +68,6 @@
 
 - Practice shadow boxing regularly  
 - Do push-ups and squats after waking up  
-- Move every 30 minutes if sitting for long periods  
+- Move every 30 minutes if sitting for long periods  o
 - Prioritize proper sleep and recovery  
 - Take a short walk after meals  
